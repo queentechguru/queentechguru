@@ -1,4 +1,4 @@
-Hi, I'm Esther Uchechukwu Olinya 👋🏽
+Hi, I'm Esther Olinya
 
 Data Analyst | Health & Customer Analytics | Fraud & Risk | Banking & Business Insights
 
